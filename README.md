@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @f6deguzman
+- 👀 I’m interested in cars
+- 🌱 I’m currently learning Maths with Accounting and Finance
+- 📫 How to reach me : franz.f.deguzman@gmail.com
